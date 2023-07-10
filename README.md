@@ -1,2 +1,0 @@
-# radecic.github.io
-radecic
